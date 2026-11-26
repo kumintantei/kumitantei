@@ -1,1 +1,1 @@
-# kumitantei
+[Баннер] ![Uploading image.png…]()
