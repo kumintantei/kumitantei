@@ -1,1 +1,1 @@
-[Баннер] ![Uploading image.png…]()
+
