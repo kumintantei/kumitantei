@@ -1,1 +1,81 @@
-![^_^](https://github.com/kumintantei/kumitantei/blob/dc33dbe841bc10b2856d2e577a92721448eba265/0f7f26e92b0ef0575735ad831fc2fb58.jpg)
+<!--- stop forking my readme oh my days </!--->
+
+<p align="center">
+  <img src="https://file.garden/an64hms_LR8WfCYE/IMG_4969.png"style="width: auto; height: auto;" />
+  
+<p align="center">
+<image src="https://file.garden/an64hms_LR8WfCYE/IMG_4971.gif"> <img src="https://hits.sh/github.com/haidaware/hits.svg?label=routes&extraCount=12240&style=for-the-badge&color=BFD81C&labelColor=BFD81C"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/denguemon?style=for-the-badge&label=clans&labelColor=00ABA1&color=00ABA1"> <image src="https://file.garden/an64hms_LR8WfCYE/IMG_4972.gif">
+
+
+<img src="https://file.garden/an64hms_LR8WfCYE/IMG_4968.png" alt="byebye!" width="290" height="auto" align="left" />
+
+<p align="center">
+$\color{00ABA1}\normalsize{\texttt{" le travail le travail ! libère l'homme ! "}}$ <br>
+
+</p>
+
+  <p align="center">
+  <a href="https://akiranishiki.straw.page"><img src="https://file.garden/an64hms_LR8WfCYE/IMG_4976.png" width="140" height="80"/></a> <a href="https://khomedy.atabook.org/"><img src="https://file.garden/an64hms_LR8WfCYE/IMG_4977.png" width="140" height="80"/></a> <a href="https://pronouns.cc/@meas"><img src="https://file.garden/an64hms_LR8WfCYE/IMG_4978.png" width="140" height="80"/></a> <a href="https://fluffle.cc/dragonofdojima"><img src="https://file.garden/an64hms_LR8WfCYE/IMG_4979.png" width="140" height="80"/></a>
+ </p>
+
+ <div align="center">
+<details>
+  <summary>$$\color{#58C165}\text{𝗽𝗼𝗻𝘆𝘁𝗼𝘄𝗻\ 𝗿𝗲𝘄𝗮𝗿𝗱𝘀}$$</summary>
+  <br>
+
+<div align="center">
+  <tr>
+    <th>
+  $$\color{#BFD81C} ↓ $$   $$\color{#E8E001} 𝘁𝗵𝗮𝗻𝗸 $$   $$\color{#E8E001} 𝘆𝗼𝘂 $$   $$\color{#BFD81C} ↓ $$
+
+##### [title town](https://github.com/title-town) ⠀ ⠀[pt players](https://github.com/pt-players) ⠀ ⠀[pt walk of fame](https://github.com/pt-walk-of-fame) ⠀ ⠀[pt hall of media](https://github.com/pt-hall-of-media) ⠀ ⠀[pt fashion](https://github.com/pt-fashion) ⠀ ⠀[pt of awesomeness](https://github.com/pt-of-awesomeness) ⠀ ⠀[owner of ponychievements](https://github.com/ponychievements) ⠀ ⠀[pt nominations](https://github.com/pt-nominations) ⠀ ⠀[pt friendships](https://github.com/pt-friendships) ⠀ ⠀[pt heavyfictkin](https://github.com/pt-heavyfictkin) ⠀ ⠀[ponytown’s rewards](https://github.com/Ponytowns-rewards) ⠀ ⠀[kaotown](https://github.com/kaotown) ⠀ ⠀[music town](https://github.com/music-town) ⠀ ⠀[choco town](https://github.com/choco-town) ⠀ ⠀[pt icon](https://github.com/pt-icon) ⠀ ⠀[pt ship nominations](https://github.com/pt-ship-nominations) ⠀ ⠀[the tempest](https://github.com/THE-TEMPIST) ⠀ ⠀[pt everypony](https://github.com/pt-everypony) ⠀ ⠀[knox event](https://github.com/knox-event) ⠀ ⠀[piddles jet](https://github.com/piddlesjet) ⠀ ⠀[bug town (ty hilda!)](https://github.com/bug-town) ⠀ ⠀[ponytown nominations](https://github.com/pony-town-nominations)</p>
+
+</details>
+</div>
+  
+</p>
+
+<div align="center">
+<details>
+  <summary>$$\color{#58C165}\text{𝗿𝗲𝗮𝗱𝗺𝗲\ 𝘁𝘂𝘁𝗼𝗿𝗶𝗮𝗹}$$</summary>
+  <br>
+
+<div align="center">
+
+##### [700 follow special ! github readme tutorial](https://denguemon.github.io)
+
+</details>
+</div>
+  
+</p>
+
+
+<div align="center">
+<details>
+  <summary>$$\color{#58C165}\text{𝗹𝗼𝘃𝗲𝗺𝗮𝗶𝗹}$$</summary>
+  <br>
+  
+  <p align="center">
+
+##### $\color{BFD81C}\normalsize{\texttt{owen gc : }}$ [jojo](https://github.com/kujoj1tar0) [loid](https://github.com/westalis) [mutt](https://github.com/futamono) [jericho](https://github.com/bbitterssweet) [soap](https://github.com/soaparoni) 
+
+##### $\color{BFD81C}\normalsize{\texttt{friends : }}$ [charli](https://github.com/zycvwq) [namyi](https://github.com/pawzu) [jester](https://github.com/lorstarcutter) | [mea](https://github.com/N1TEB0I) [kathi](https://github.com/4lamort) [leni](https://github.com/creepypastasakura) [morgue](https://github.com/Iostromance) [vincent](https://github.com/myshghoul) [vas](https://github.com/vascoscoscos) [karl](https://github.com/wikiliusdarling) [vee](https://github.com/jokechi) [mike](https://github.com/rinsagi) [ant](https://github.com/spam-tune) [gackt](https://github.com/rickgriimes) [hilda](https://github.com/livingforest) [tem](https://github.com/yvoisen) [ko](https://github.com/opioiid) [matt](https://github.com/phiIemon) [charlie](https://github.com/homebutcher) [noire](https://github.com/newestalbum) [cheryl](https://github.com/trenkir) [kemi](https://github.com/enmitye) [xio](https://github.com/shxrkyxio) [13](https://github.com/pawnresearch) [leon](https://github.com/straystride) [jess](https://github.com/URAHARA-KI) [oumi](https://github.com/oumazings) [surf](https://github.com/whatsahearrt)</p>
+
+</details>
+
+
+
+<p align="center">
+  <img src="https://file.garden/an64hms_LR8WfCYE/IMG_4974.png"style="width: 40%; height: auto;" />
+</p>
+
+<p align="center">
+  <img src="https://file.garden/an64hms_LR8WfCYE/IMG_4975.png"style="width: 15%; height: auto;" />
+</p>
+
+<p align="center">
+  <a href="https://www.last.fm/user/vendanski">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xau55gmj5ufec2bl4hbxh2zl24&cover_image=true&theme=novatorem&show_offline=false&background_color=07A196&interchange=false&profanity=false&bar_color=FFFFFF&bar_color_cover=false">
+  
+<p align="center">
+  <img src="https://file.garden/an64hms_LR8WfCYE/IMG_4970.png"style="width: auto; height: auto;" />
